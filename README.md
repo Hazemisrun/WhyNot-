@@ -1,2 +1,2 @@
 # WhyNot-
-If you let me know, how i can do it ... I give you than a big secret >>
+If you let me know, how can i do it ... I give you than a big secret >>
